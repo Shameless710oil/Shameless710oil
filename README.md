@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @Shameless710oil
-- 👀 I’m interested in Cannabis, Crypto/Currencies, Women & Tech
-- 🌱 I’m currently learning anything my ADHD lifestyle allows me 2. 
-- 💞️ I’m looking to collaborate on nothing currently.
-- 📫 How to reach me - @Shameless710OIL on Twitter
+- 👋 Hi,I’m Chad AKA  @Shameless710oil or Tease.
+- 👨‍👦‍👦 Father of 2 awesome boys that I feel blessed to have in my life.
+- 🛸 Im interested in almost all things tech. I don't view AI as an adversary but an asset. A tool that could be benificial for everyone once perfected.
+- 📈 I'm scraping by financially, but im determined to figure out a way to achieve financial freedom.
+- ♈ I'm an Aries full of ideas and im working on a few projects.
+- 🗣️ I could benefit having someone to mentor me and giving me guidance on how to cross the finishline of one of my projects.
